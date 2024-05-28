@@ -1,0 +1,1 @@
+# Adobe-Audition-activation-by-hiem
